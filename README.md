@@ -66,6 +66,7 @@
 ![Screenshot 2023-08-29 at 10 19 46 AM](https://github.com/craig-statsig/pics/assets/102695539/1626481b-3c45-4622-b7c8-1e9638436a8d)
 
 
+![Screenshot 2023-08-29 at 10 27 43 AM](https://github.com/craig-statsig/pics/assets/102695539/f6612c45-4bb0-4be3-ae56-349a46e716b4)
 
 
 
