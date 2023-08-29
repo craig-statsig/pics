@@ -35,3 +35,8 @@
 ![Screenshot 2023-08-29 at 9 24 15 AM](https://github.com/craig-statsig/pics/assets/102695539/18970974-b639-4d73-8977-e54de752ae0a)
 ![Screenshot 2023-08-29 at 9 24 44 AM](https://github.com/craig-statsig/pics/assets/102695539/9938e02b-c1fb-4a37-a503-e7e49157509a)
 ![Screenshot 2023-08-29 at 9 24 31 AM](https://github.com/craig-statsig/pics/assets/102695539/f466deb1-cc48-4672-8ff9-76f593637d7e)
+
+
+![Screenshot 2023-08-29 at 9 28 25 AM](https://github.com/craig-statsig/pics/assets/102695539/0aa89c83-e6ee-43d6-9d69-2dafeba6f94d)
+
+![Screenshot 2023-08-29 at 9 27 56 AM](https://github.com/craig-statsig/pics/assets/102695539/187cba73-1cf9-4ddf-b720-9641e97ce678)
