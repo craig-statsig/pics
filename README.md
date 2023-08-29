@@ -70,4 +70,5 @@
 <img width="809" alt="Screenshot 2023-08-29 at 10 38 34 AM" src="https://github.com/craig-statsig/pics/assets/102695539/b9e07098-cd3a-4107-aa3f-6740fc3d8b7a">
 
 
+<img width="1555" alt="Screenshot 2023-08-29 at 11 11 57 AM" src="https://github.com/craig-statsig/pics/assets/102695539/b0bdf1af-3ec6-4770-aabd-35f948ea842d">
 
